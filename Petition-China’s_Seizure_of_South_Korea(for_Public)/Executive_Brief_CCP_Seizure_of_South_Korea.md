@@ -39,13 +39,13 @@ Within **60 days**, a CCP-aligned regime could take power via a **rigged electio
 
 ## Strategic Implications
 
-- **Alliance at Risk**:  
+- **Alliance at Risk**:<br>
   Collapse of the U.S.-ROK alliance would cost the U.S. $370B–$500B annually and erode global deterrence.
 
-- **Democracy Undermined**:  
+- **Democracy Undermined**:<br>
   CCP seeks to replicate the Hong Kong model through South Korea.
 
-- **Immediate Test of U.S. Resolve**:  
+- **Immediate Test of U.S. Resolve**:<br>
   June 3 election deadline is critical. CCP is watching to gauge U.S. capacity to respond.
 
 
@@ -53,19 +53,19 @@ Within **60 days**, a CCP-aligned regime could take power via a **rigged electio
 
 ## Recommendations
 
-1. **Dismantle the CCP-Backed Cartel**  
+1. **Dismantle the CCP-Backed Cartel**<br>
    Legal, financial, and intelligence operations before June 3.
 
-2. **Deploy Starlink**  
+2. **Deploy Starlink**<br>
    To secure communications and U.S.-Korea tech environments.
 
-3. **Enhance Naval Integration**  
+3. **Enhance Naval Integration**<br>
    Use Korean shipbuilding to augment U.S. capabilities under CFC.
 
-4. **Strategic Industrial Shift**  
+4. **Strategic Industrial Shift**<br>
    Replace CCP-linked supply chains with South Korea's.
 
-5. **Global Example**  
+5. **Global Example**<br>
    Publicly expose and prosecute cartel actors to counter CCP narratives.
 
 
@@ -78,8 +78,8 @@ Within **60 days**, a CCP-aligned regime could take power via a **rigged electio
 
 ### Attribution & Repository
 
-This document was produced as part of the **Skyblue-SignalOps** initiative.  
-For full methodology, archives, and background data, visit the main repository:  
+This document was produced as part of the **Skyblue-SignalOps** initiative.<br>
+For full methodology, archives, and background data, visit the main repository:<br>
 [https://github.com/DefendFreeKorea/Skyblue-SignalOps](https://github.com/DefendFreeKorea/Skyblue-SignalOps)
 
 This brief was collaboratively developed with **ChatGPT**, guided by the strategic input and field insight of **ThinkBigKorea**.
