@@ -5,6 +5,7 @@
 
 ---
 
+
 ## Urgent Threat Overview
 
 The Chinese Communist Party (CCP), through an election fraud and narcotics cartel, has orchestrated a **hybrid seizure of South Korea's institutions**.<br>
@@ -13,6 +14,7 @@ Within **60 days**, a CCP-aligned regime could take power via a **rigged electio
 
 
 ---
+
 
 ## Critical Evidence Summary
 
@@ -37,6 +39,7 @@ Within **60 days**, a CCP-aligned regime could take power via a **rigged electio
 
 ---
 
+
 ## Strategic Implications
 
 - **Alliance at Risk**:<br>
@@ -50,6 +53,7 @@ Within **60 days**, a CCP-aligned regime could take power via a **rigged electio
 
 
 ---
+
 
 ## Recommendations
 
@@ -71,10 +75,22 @@ Within **60 days**, a CCP-aligned regime could take power via a **rigged electio
 
 ---
 
+
 > **This is not just about Korea – it's the frontline of the 21st-century Cold War.**  
 > **The U.S. must act now to preserve its leadership and protect global democratic integrity.**
 
+
 ---
+
+
+### Full Report (PDF)
+[Urgent Warning: China’s Seizure of South Korea with Fabricated Evidence—A Direct Challenge to U.S. Leadership Requiring Immediate Action](링크)<br>
+[Grok (xAI) Analysis: Economic Losses to the U.S. from Losing South Korea and Budget Savings Through U.S.-ROK Cooperation](링크)<br>
+
+
+
+---
+
 
 ### Attribution & Repository
 
