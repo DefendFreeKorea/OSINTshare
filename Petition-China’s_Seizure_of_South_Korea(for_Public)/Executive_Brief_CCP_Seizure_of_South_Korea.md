@@ -84,8 +84,8 @@ Within **60 days**, a CCP-aligned regime could take power via a **rigged electio
 
 
 ### Full Report (PDF)
-[Urgent Warning: China’s Seizure of South Korea with Fabricated Evidence—A Direct Challenge to U.S. Leadership Requiring Immediate Action](Petition-China’s_Seizure_of_South_Korea(for_Public)/(Urgent Warning) China’s Seizure of South Korea with Fabricated Evidence - A Direct Challenge to U.S. Leadership Requiring Immediate Action (Public no ref)_ver1.1/to/pdf)<br>
-[Grok (xAI) Analysis: Economic Losses to the U.S. from Losing South Korea and Budget Savings Through U.S.-ROK Cooperation](Petition-China’s_Seizure_of_South_Korea(for_Public)/Economic Losses to the U.S. from Losing South Korea and Budget Savings Through U.S/to/pdf)<br>
+1-1. Urgent Warning: China’s Seizure of South Korea with Fabricated Evidence—A Direct Challenge to U.S. Leadership Requiring Immediate Action<br>
+1-2. Grok (xAI) Analysis: Economic Losses to the U.S. from Losing South Korea and Budget Savings Through U.S.-ROK Cooperation<br>
 
 
 
