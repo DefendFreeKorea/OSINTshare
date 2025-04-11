@@ -1,6 +1,6 @@
 # Executive Intelligence Brief  
-**CCP Seizure of South Korea**<br>
-**Prepared by: ThinkBig, DefendFreeKorea**
+**China’s Seizure of South Korea with Fabricated Evidence—A Direct Challenge to U.S. Leadership Requiring Immediate Action**<br>
+**Prepared by: ThinkBigKorea, DefendFreeKorea**
 
 ---
 
