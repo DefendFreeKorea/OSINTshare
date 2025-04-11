@@ -2,6 +2,7 @@
 **China’s Seizure of South Korea with Fabricated Evidence—A Direct Challenge to U.S. Leadership Requiring Immediate Action**<br>
 **Prepared by: ThinkBigKorea, DefendFreeKorea**
 
+
 ---
 
 ## Urgent Threat Overview
@@ -10,13 +11,15 @@ The Chinese Communist Party (CCP), through an election fraud and narcotics carte
 The impeachment of pro-U.S. President **Yoon Suk-yeol** on April 4, 2025, using fabricated evidence, marks a **direct challenge to U.S. leadership** in the Indo-Pacific.<br>
 Within **60 days**, a CCP-aligned regime could take power via a **rigged election**.
 
+
 ---
 
 ## Critical Evidence Summary
-- **Institutional Capture**: Judiciary, police, legislature, and intelligence services compromised.<br>    
+
+- **Institutional Capture**: Judiciary, police, legislature, and intelligence services compromised.<br>
   Martial law was declared by President Yoon to investigate 2020 and 2024 election fraud.
 
-- **Election Fraud Mechanism**:<br> 
+- **Election Fraud Mechanism**:<br>
   Digital hacking, fake ballots (including U.S. 2020 via Korean Airgate), and postal manipulation via pro-CCP firms.
   
 - **Technology Leakage**:<br>
@@ -28,8 +31,9 @@ Within **60 days**, a CCP-aligned regime could take power via a **rigged electio
 - **Human Rights Violations**:<br>
   Alleged illegal organ trafficking; Hong Kong-style suppression of protests is imminent.
   
-- **Espionage and Interference**:<br> 
+- **Espionage and Interference**:<br>
   Confucius Institutes, compromised court appointments, and drone surveillance of U.S. assets.
+
 
 ---
 
@@ -43,6 +47,7 @@ Within **60 days**, a CCP-aligned regime could take power via a **rigged electio
 
 - **Immediate Test of U.S. Resolve**:  
   June 3 election deadline is critical. CCP is watching to gauge U.S. capacity to respond.
+
 
 ---
 
@@ -62,6 +67,7 @@ Within **60 days**, a CCP-aligned regime could take power via a **rigged electio
 
 5. **Global Example**  
    Publicly expose and prosecute cartel actors to counter CCP narratives.
+
 
 ---
 
