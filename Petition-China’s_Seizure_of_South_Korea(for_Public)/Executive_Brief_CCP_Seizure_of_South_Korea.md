@@ -6,8 +6,9 @@
 
 ## Urgent Threat Overview
 
-The Chinese Communist Party (CCP), through an election fraud and narcotics cartel, has orchestrated a **hybrid seizure of South Korea's institutions**.  
-The impeachment of pro-U.S. President **Yoon Suk-yeol** on April 4, 2025, using fabricated evidence, marks a **direct challenge to U.S. leadership** in the Indo-Pacific.  Within **60 days**, a CCP-aligned regime could take power via a **rigged election**.
+The Chinese Communist Party (CCP), through an election fraud and narcotics cartel, has orchestrated a **hybrid seizure of South Korea's institutions**.<br>
+The impeachment of pro-U.S. President **Yoon Suk-yeol** on April 4, 2025, using fabricated evidence, marks a **direct challenge to U.S. leadership** in the Indo-Pacific.<br>
+Within **60 days**, a CCP-aligned regime could take power via a **rigged election**.
 
 ---
 
