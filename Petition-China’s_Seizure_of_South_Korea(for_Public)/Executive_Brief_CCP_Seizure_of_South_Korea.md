@@ -13,18 +13,22 @@ Within **60 days**, a CCP-aligned regime could take power via a **rigged electio
 ---
 
 ## Critical Evidence Summary
-- **Institutional Capture**: Judiciary, police, legislature, and intelligence services compromised.    
+- **Institutional Capture**: Judiciary, police, legislature, and intelligence services compromised.<br>    
   Martial law was declared by President Yoon to investigate 2020 and 2024 election fraud.
 
-- **Election Fraud Mechanism**:    
+- **Election Fraud Mechanism**:<br> 
   Digital hacking, fake ballots (including U.S. 2020 via Korean Airgate), and postal manipulation via pro-CCP firms.
-- **Technology Leakage**:    
+  
+- **Technology Leakage**:<br>
   CCP access to nuclear, AI, and defense data through telecom networks and insider infiltration.
-- **Financial Infrastructure**:    
+  
+- **Financial Infrastructure**:<br>
   $3.5B laundered via Korean credit unions; 2 tons of narcotics seized with CCP-cartel ties.
-- **Human Rights Violations**:  
+  
+- **Human Rights Violations**:<br>
   Alleged illegal organ trafficking; Hong Kong-style suppression of protests is imminent.
-- **Espionage and Interference**:  
+  
+- **Espionage and Interference**:<br> 
   Confucius Institutes, compromised court appointments, and drone surveillance of U.S. assets.
 
 ---
