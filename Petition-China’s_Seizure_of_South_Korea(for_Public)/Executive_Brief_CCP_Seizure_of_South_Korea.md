@@ -1,5 +1,5 @@
 # Executive Intelligence Brief  
-**CCP Seizure of South Korea**  
+**CCP Seizure of South Korea**<br>
 **Prepared by: ThinkBig, DefendFreeKorea**
 
 ---
