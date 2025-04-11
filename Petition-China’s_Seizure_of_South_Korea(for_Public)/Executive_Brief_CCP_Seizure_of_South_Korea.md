@@ -40,13 +40,13 @@ Within **60 days**, a CCP-aligned regime could take power via a **rigged electio
 ## Strategic Implications
 
 - **Alliance at Risk**:<br>
-  Collapse of the U.S.-ROK alliance would cost the U.S. $370B–$500B annually and erode global deterrence.
+  Collapse of the U.S.-ROK alliance would cost the U.S. $370B–$500B annually and erode global deterrence.
 
 - **Democracy Undermined**:<br>
-  CCP seeks to replicate the Hong Kong model through South Korea.
+  CCP seeks to replicate the Hong Kong model through South Korea.
 
 - **Immediate Test of U.S. Resolve**:<br>
-  June 3 election deadline is critical. CCP is watching to gauge U.S. capacity to respond.
+  June 3 election deadline is critical. CCP is watching to gauge U.S. capacity to respond.
 
 
 ---
@@ -54,19 +54,19 @@ Within **60 days**, a CCP-aligned regime could take power via a **rigged electio
 ## Recommendations
 
 1. **Dismantle the CCP-Backed Cartel**<br>
-   Legal, financial, and intelligence operations before June 3.
+   Legal, financial, and intelligence operations before June 3.
 
 2. **Deploy Starlink**<br>
-   To secure communications and U.S.-Korea tech environments.
+   To secure communications and U.S.-Korea tech environments.
 
 3. **Enhance Naval Integration**<br>
-   Use Korean shipbuilding to augment U.S. capabilities under CFC.
+   Use Korean shipbuilding to augment U.S. capabilities under CFC.
 
 4. **Strategic Industrial Shift**<br>
-   Replace CCP-linked supply chains with South Korea's.
+   Replace CCP-linked supply chains with South Korea's.
 
 5. **Global Example**<br>
-   Publicly expose and prosecute cartel actors to counter CCP narratives.
+   Publicly expose and prosecute cartel actors to counter CCP narratives.
 
 
 ---
